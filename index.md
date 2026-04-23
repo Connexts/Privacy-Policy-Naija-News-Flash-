@@ -23,4 +23,4 @@ We may update this Privacy Policy from time to time. Any changes will be posted 
 
 ## Contact Us
 If you have questions or concerns about this Privacy Policy, please contact us at:  
-**your-email@example.com**
+ochukwu880@gmail.com
